@@ -31,5 +31,5 @@ We achieved our mission done by building a network of 30 Ambassadors and 150 You
 > |[GALxz Instagram](https://www.instagram.com/gal.x.z/)| [Purchase Fables Anthology on Kindle Now!](https://www.amazon.com/Galactic-Fables-Anthology-Gal-x-Z-ebook/dp/B08X2RB1DK) |
 
 ### Model UN 📚
-Model UN was what transformed me from a shy kid to a loud and vivacious one. I attended many conferences growing up then served as the Under-Secretary-General of Academics for NPSiMUN 2020. I loved vetting study guides and learning more about global issues through debate and academic writing. I'm still pursuing this passion through Penn's Mode UN Conferences and their Intercollegiate Travelling Team.
+Model UN was what transformed me from a shy kid to a loud and vivacious one. I attended many conferences growing up and then served as the Under-Secretary-General of Academics for NPSiMUN 2020. I loved vetting study guides and learning more about global issues through debate and academic writing. I'm still pursuing this passion through Penn's Mode UN Conferences and their Intercollegiate Travelling Team.
 
