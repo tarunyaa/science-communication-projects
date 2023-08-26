@@ -16,7 +16,7 @@ More than that, we were Singapore's National Coordinators for UN World Space Wee
 
 I believe that science is useless if it's not communicated properly, and these initiatives were my attempt at  inculcating an appreciation for physics in my community. I continued this journey in college where I served at the 2022-23 President for Penn Astronomical Student Association and organised stargazing sessions. 
 
-> |[WSW 2020 Annual Report](https://www.worldspaceweek.org/wp-content/uploads/WSW_Annual_Report_2020.pdf) | Physics Society Instagram | 
+> |[WSW 2020 Annual Report](https://www.worldspaceweek.org/wp-content/uploads/WSW_Annual_Report_2020.pdf) | [Physics Society Instagram](https://www.instagram.com/thephysicsociety/)| 
 
 ### Quantum Computing 💻
 I interned at Atom Computing where I studied quantum computing and information theory and collected information of quantum computing frontends for the Principal Quantum Scientist. More than that, I gave a talk for Progressive's 2022 Network of Empowered Women Takes Your Daughter to IT Day. I worked on the presentation with phD Physicists and my friends to simplify a topic as complicated as quantum computing.
